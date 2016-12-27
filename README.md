@@ -6,7 +6,7 @@ ideas on new projects, and of course, Works in Progress.
 ## EQ - and the future
 
 Conversation last night with my long-time friend
-Livia and her wonderful daughter and son, Kayleigh and Ben, turned to sustainability.  
+Livia and her wonderful daughter and son, Kaleigh and Ben, turned to sustainability.  
 An area that we all recognise as critically important, but where we are
 all equally seeking solutions, approaches, change, from our own particular 
 perspectives.
